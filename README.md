@@ -9,6 +9,6 @@
 </p>
 
 
-[ata](squidswag.atabook.org) ⊹ ࣪ ˖ [twt](twitter.com/cheescakelrker)
+[ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [twt](https://twitter.com/cheescakelrker)
 
 ![orca-image-708816215 jpeg](https://github.com/user-attachments/assets/845b0ded-ee5b-4bb1-a0c8-d0f230bc8fa1)

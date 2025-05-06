@@ -1,7 +1,7 @@
 hi i'm really friendly and nice i prommy please interact with me :-) ! !
 
 me vvvvvv
-![Untitled803_20250506215248](https://github.com/user-attachments/assets/4720df8f-9024-47ac-9af5-ae9af558d53b)
+![Untitled803_20250506215248](https://github.com/user-attachments/assets/e6cec5fb-4eb9-454c-883f-79e992f7ce04)
 
 
 <!--

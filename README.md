@@ -1,20 +1,14 @@
-hi i'm really friendly and nice i prommy please interact with me :-) ! !
-
-me vvvvvv
-![Untitled803_20250506215248](https://github.com/user-attachments/assets/e6cec5fb-4eb9-454c-883f-79e992f7ce04)
+<p align="center">
 
 
-<!--
-**SQUlDSWAG/SQUlDSWAG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![Untitled805_20250506235832](https://github.com/user-attachments/assets/4fa493c2-f475-4a12-b5f5-df314ba2a35f)
+</p>
+<p align="center">
+✧˖°. c+h is always ok :-)
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+[ata](squidswag.atabook.org) ⊹ ࣪ ˖ [twt](twitter.com/cheescakelrker)
+
+![orca-image-708816215 jpeg](https://github.com/user-attachments/assets/845b0ded-ee5b-4bb1-a0c8-d0f230bc8fa1)

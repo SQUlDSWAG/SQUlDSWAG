@@ -1,4 +1,4 @@
-<p align="center">
+7<p align="center">
 
 
 
@@ -8,7 +8,6 @@
 ✧˖°. i like it when it turns fall because everything goes orange
 </p>
 
-![](https://komarev.com/ghpvc/?squldswag&color=9d141a)
 
 [ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [twt](https://twitter.com/cheescakelrker)
 

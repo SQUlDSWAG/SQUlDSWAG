@@ -11,3 +11,10 @@
 
 [ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [twt](https://twitter.com/cheescakelrker)
 
+</p>
+<p align="center">
+ponytown byi
+</p>
+i will be very hyperactive towards friends! i am generally sitting around mcyt hill but sometimes at the docks! lol i have A Life so i go inactive at times soery
+
+i'm a very joyful person so feel free to interact lala

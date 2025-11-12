@@ -24,3 +24,5 @@ i'm a very joyful person so feel free to interact lala. however i may not be res
 i'm no doubt a fictionkin of squiddo so um. sourcemates interact or somethinf how do you do this socializing thing lmfaooodhfj
 
 i am sensitive and anxious Be careful when jokeing with me using threats specifically when idk You. 
+
+Let's all Be Friends ! ☀️🌟🌻🧡

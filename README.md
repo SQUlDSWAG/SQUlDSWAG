@@ -20,9 +20,7 @@ ponytown byi
 </p>
 KID WITH 10 THOUSAND SQUIDDO PONIES.
 
-i will be very hyperactive towards friends! i am generally sitting around mcyt hill but sometimes at the docks! lol i have A Life so i go inactive at times soorry~
-
-i'm a very joyful person so feel free to interact lala. however i may not be responsive sometimes i'll be quiet sometimes ill JEST with you! its like a 50/50 lmaojf BUT Im Trying ok. hmu if You are mutuals witj me in another platform lets be ponyfriends #FriendshipIsMaguc
+I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive 
 
 
 Let's all Be Friends ! ☀️🌟🌻🧡

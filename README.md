@@ -12,7 +12,7 @@
 </p>
 
 
-[ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [twt](https://twitter.com/cheescakelrker)
+[ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [tiktok](https://tiktok.com/@10.36bea)
 
 </p>
 <p align="center">

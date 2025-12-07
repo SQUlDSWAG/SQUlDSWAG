@@ -8,19 +8,10 @@
 <img width="2932" height="1794" alt="Untitled1216_20251111221501" src="https://github.com/user-attachments/assets/58a47bc0-fbfe-4c64-84e7-1a1bd35af513" />
 </p>
 <p align="center">
-✧˖°. i like it when it turns fall because everything goes orange
+✧˖°.
 </p>
 
 
-[ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ [tiktok](https://tiktok.com/@10.36bea)
+[ata](https://squidswag.atabook.org) ⊹ ࣪ ˖ 
 
-</p>
-<p align="center">
-ponytown byi
-</p>
-KID WITH 10 THOUSAND SQUIDDO PONIES.
-
-I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive I'm The Happiest Girl Alive 
-
-
-Let's all Be Friends ! ☀️🌟🌻🧡
+other links in my guns . lol
